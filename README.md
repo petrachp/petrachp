@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on innovative Space Projects
 - 📫 How to reach me: pierluigipetrachi98@gmail.com 
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I love to swim!
 
 <!---
 petrachp/petrachp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
